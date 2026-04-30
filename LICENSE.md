@@ -1,4 +1,4 @@
-
+Experience valorant radar like never before with valorant radar instant Scripts: enemy hitbox indicator & instant defuse, the #1 scripts. Includes enemy hitbox indicator and
 
 
 
